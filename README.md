@@ -1,5 +1,5 @@
 Project Title:
- "Funniest Roadside Billboard Typos"
+ FUNNIEST ROADSIDE BILLBOARD TYPOS
  
  Key Features:
  
